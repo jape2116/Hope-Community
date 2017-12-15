@@ -17,6 +17,7 @@ Attendance
 [ ] Amber Hawes    
 [ ] John Peart   
 
+
 ---
 ### Devotional: 
 
