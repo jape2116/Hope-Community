@@ -65,8 +65,6 @@ Attendance
 * Miscellaneous
 
 ### Upcoming Events
-* November 28th - Giving Tuesdays
-* December 5th - Crafty Christmas  
 * December 24th - Baptism
 
 ### Prayer  
