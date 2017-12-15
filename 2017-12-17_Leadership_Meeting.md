@@ -10,9 +10,11 @@ Prayer
 
 Attendance  
 [ ] Jeremy England   
+[ ] Maliesha Gillespie   
 [ ] Larry Avery   
 [ ] Mike Kowalski   
 [ ] Jay Cribbs   
+[ ] Amber Hawes    
 [ ] John Peart   
 
 ---
