@@ -13,7 +13,9 @@ Attendance
 [ ] Larry Avery   
 [ ] Mike Kowalski   
 [ ] Jay Cribbs   
-[ ] John Peart   
+[ ] John Peart
+[ ] Amber Hawes
+[ ] Maliesha Gillespie
 
 ---
 ### Devotional: 
