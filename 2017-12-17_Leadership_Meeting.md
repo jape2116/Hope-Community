@@ -36,8 +36,8 @@ Attendance
 ### Committees
 * Discipleship
 	* Jesus X01
-		* 101 - 
-		* 201 - 
+		* 101 - Finished class w/ Nicole today. She enjoyed it. Still working w/ Cathy Bishop recognizing Karios moments. 
+		* 201 - TBD (get list of people who need this class)
 		* 301 - 
 		* 401 - 
 	* Bible Study
@@ -47,7 +47,9 @@ Attendance
 * Up
  
 * Children/Youth
-	* We will be down with the curriculum we are using now Dec 31! We will start this curriculum that first Sunday in January. I will have the first 2 months curriculum next week to start looking through. The good thing about us starting a few months behind them is they have already started working out kinks. Also, each month (4-5 lessons) work through the Lord’s Prayer! So it’s using 3DM stuff without the specific language. Also, the point is to help our kiddos become bible literate. I will bring the curriculum to church on the 17th if you guys wanted to look through it at the board meeting!
+	* We will be down with the curriculum we are using now Dec 31! We will start this curriculum that first Sunday in January. I will have the first 2 months curriculum next week to start looking through. The good thing about us starting a few months behind them is they have already started working out kinks. Also, each month (4-5 lessons) work through the Lord’s Prayer! So it’s using 3DM stuff without the specific language. Also, the point is to help our kiddos become bible literate. I will bring the curriculum to church on the 17th if you guys wanted to look through it at the board meeting!  
+
+	* I want the nursery workers to do the Bible story & activity w/ the older kids on Sundays. Courtney is making a bin of materials for the month we will switch out 4th week for the next month. Would like to host a quick meeting after church on December 31st to go over the new materials. Anyone interested in joining the children's ministry can attend. 
 
 
 ---
@@ -58,7 +60,9 @@ Attendance
 	* 5 New Community Partners
 	* 10 More Discipleship Groups
 	* 20 new leaders
-	* What are we doing to work towards them
+	* What are we doing to work towards them?
+
+
 ---
 ### New Business  
 * Youth Group Planning  
@@ -66,6 +70,7 @@ Attendance
 
 ### Upcoming Events
 * December 24th - Baptism
+* January 7th - Esther Class Begins
 
 ### Prayer  
 * John
